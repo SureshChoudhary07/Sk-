@@ -1,1 +1,4 @@
-suresh choudhary 
+Hi, I'm Suresh Choudhary.
+I am a dedicated student currently pursuing an integrated B.Com and ACCA (Association of Chartered Certified Accountants) global professional qualification. Having completed my 12th grade in 2026, I am deeply passionate about building a strong foundation in global finance while simultaneously growing my digital skill set.
+Alongside my academic journey, I work part-time as a multifaceted digital freelancer. My expertise spans affiliate marketing, graphic design, video editing, content creation, and scriptwriting. I also specialize in prompt engineering, leveraging AI tools to generate highly detailed and creative visual assets.
+When I am not studying or working on digital projects, I focus on personal growth. You will often find me reading books centered around productivity, success mindsets, and human psychology. I also love staying up-to-date with the latest tech trends, exploring financial markets and trading, and playing sports to maintain a healthy, active balance.
